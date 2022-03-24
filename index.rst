@@ -1,6 +1,6 @@
 # bokepindo
-Nonton video bokep online indonesia terbaru 2020!
-Akibat besar nonton video bokep / porno bagi kalian nih Sob! Jangan dikira kebanyakan nonton flm bokep/porno/blue ga ada efek buruknya, ternyata ada lho, apalagi buat lo yang hobi banget download, dan ngoleksi, bikin hardisk lo penuh. :P Contoh situs nonton video bokep online http://www.bokepjelita.xyz  Biar elu terhindar dari kebiasaan buruk yang ngabisin memori harddisk lu, nih baca dulu apa aja pengaruh buruk kalo lo kebanyakan nonton video bokep
+Nonton video bokep online indonesia terbaru 2022!
+Akibat besar nonton video bokep / porno bagi kalian nih Sob! Jangan dikira kebanyakan nonton flm bokep/porno/blue ga ada efek buruknya, ternyata ada lho, apalagi buat lo yang hobi banget download, dan ngoleksi, bikin hardisk lo penuh. :P Contoh situs nonton video bokep online http://45.76.156.105/  Biar elu terhindar dari kebiasaan buruk yang ngabisin memori harddisk lu, nih baca dulu apa aja pengaruh buruk kalo lo kebanyakan nonton video bokep
 
 Pornografi Bikin Kecanduan
 Seperti narkoba, ternyata nonton bokep bias bikin elu semua kecanduan. Sekali lu tonton, lu bakal minta lagi dan lagi.
